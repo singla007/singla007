@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am half finnished
 
+### Visior Counter  ❤️  <p>                   </p> <img src="https://profile-counter.glitch.me/singla007/count.svg" />
